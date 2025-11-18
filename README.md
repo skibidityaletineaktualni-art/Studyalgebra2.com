@@ -1,1 +1,0 @@
-# Studyalgebra2.com
